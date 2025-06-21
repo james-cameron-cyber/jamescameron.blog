@@ -1,1 +1,0 @@
-# jamescameron.blog
